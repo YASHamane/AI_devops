@@ -1,2 +1,4 @@
-pratik is good guy 
-he is good guy we all know that 
+pratik is good guy
+
+No he is not he is bad and gay guy
+
